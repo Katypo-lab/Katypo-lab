@@ -1,0 +1,5 @@
+- 👋 soy nueva ^-^
+- 👀 ¿?
+- 🌱 katy 
+- 💞️ UwU 
+- 📫no molestar 
